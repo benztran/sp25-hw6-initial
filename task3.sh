@@ -26,10 +26,6 @@
 ### 7. write your answer below this line
 
 
-### 8. write your answer below this line
-
-
-### 9. write your answer below this line
 
 
 
